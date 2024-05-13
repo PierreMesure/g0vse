@@ -1,0 +1,7 @@
+# Världsbanken inrättar en krisfacilitet med stöd av Sverige för Ukraina och andra länder drabbade av krigets effekter
+
+Styrelsen för Världsbankens Internationella utvecklingsfond har beslutat om att inrätta en extraordinär krisfacilitet. Detta innebär finansieringsprogram för Ukraina, Moldavien och de fattigaste länderna som drabbats av kriget i Ukraina och dess effekter. Sverige har varit pådrivande i arbetet. Regeringen tog tidigt ledarskap genom att bistånds- och utrikeshandelsminister Johan Forssell aviserade finansiellt stöd om 600 miljoner kronor till Ukraina och Moldavien i december 2022.
+
+– Sverige har både nationellt, och i egenskap av ordförande i EU, drivit mobiliserandet av stöd till dem som drabbats av kriget i Ukraina. Regeringen välkomnar krisfaciliteten som ett exempel på effektivt bistånd. Det har varit en lång och stundtals svår förhandling men det är glädjande att givarkollektivet i Världsbanken nu kunnat nå enighet, säger bistånds- och utrikeshandelsminister Johan Forssell.
+
+Krisfaciliteten består av två finansieringsprogram. Det ena programmet finansierar tidig återhämtning och återuppbyggnad i Ukraina genom investeringar i hälsa, energi, transport, jordbruk och sociala skyddsnät. Dessutom finansieras stöd till Moldavien vars ekonomi pressas av energikrisen och en hög andel ukrainska flyktingar. Det andra programmet finansierar krisrespons i låginkomstländer som drabbats hårt av effekterna av Rysslands krig mot Ukraina, inte minst genom stöd till ökad livsmedelstrygghet.

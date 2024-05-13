@@ -1,0 +1,7 @@
+# Paulina Brandberg deltar i toppmöte om jämställdhet i New York
+
+Den 17 september medverkar jämställdhets- och biträdande arbetsmarknadsminister Paulina Brandberg i FN-mötet ”Generation Equality - An SDG Accelerator. The Midpoint Moment” i New York. Det är ett globalt FN-initiativ som beräknas pågå mellan 2021-2026 och syftar till att påskynda utvecklingen av kvinnors och flickors rättigheter och jämställdhet. Under besöket i New York kommer Brandberg också att ha bilaterala möten samt träffa New York stad och civilsamhällesorganisationer som jobbar mot våld i nära relationer.
+
+– I en omvärld där kvinnors och flickors rättigheter ifrågasätts ska Sverige vara en tydlig förespråkare och röst för jämställdhet. Vi ska stå upp för rätten att välja utbildning och yrke, rätten till kroppslig integritet och stå upp för friheten som ekonomisk egenmakt ger. Kvinnors och flickors rättigheter och möjligheter ska främjas i det internationella samarbetet, säger jämställdhets- och biträdande arbetsmarknadsminister Paulina Brandberg.
+
+Initaitivet Generation Equality, som samordnas av FN:s jämställdhetsorgan UN Women, samlar företrädare för stater, företag, FN-organ, multilaterala organisationer, civilsamhälles- och ungdomsorganisationer samt filantropier. Initiativet sjösattes tillsammans med Frankrike och Mexiko under 2020 för att belysa att det är 25 år sedan handlingsplanen för kvinnors rättigheter antogs i Peking, den så kallade Peking-plattformen. Målet med initiativet är att påskynda genomförandet av handlingsplanen.

@@ -1,0 +1,17 @@
+# Civilministern fortsätter sin företagsturné
+
+Denna vecka, 20–24 februari, fortsätter civilminister Erik Slottner sin påbörjade företagsturné där han möter aktörer i näringslivet som är verksamma inom digitalisering.
+
+– Förra veckan var mycket givande. Jag ser fram emot att lära mig mer från näringslivet, speciellt när det gäller vad politiken kan göra för att främja innovation genom digitalisering, säger civilminister Erik Slottner.
+
+Förra veckan besökte statsrådet Finansiell ID-Teknik BID, UC (kreditupplysningsföretaget), Telenor, Tele2, Ericsson samt AI Sweden. Under denna vecka, 20–24 februari, besöker statsrådet följande företag:
+
+* Trimble
+* FLIR
+* Telia
+* Cisco Sverige
+* SAAB
+
+Utöver ovanstående besök har statsrådet även inbokade möten med Meta, Kungliga Ingenjörsvetenskapsakademien (IVA), Techsverige och Svensk Handel.
+
+Vid frågor kontakta civilministerns presskontakt.

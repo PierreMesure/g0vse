@@ -1,0 +1,7 @@
+# Skolsäkerhetsutredningen får i uppdrag att utreda informationsutbyte mellan skolor
+
+På senare tid har polisen vittnat om att allt yngre personer påträffas i samband med grova våldsbrott och kriminella nätverksuppgörelser. Regeringen har tagit flera initiativ för att motverka att sekretessregleringen står i vägen för det brottsförebyggande arbetet och ger nu Skolsäkerhetsutredningen i uppdrag att kartlägga och analysera vilka uppgifter skolor kan behöva dela med varandra för att kunna underlätta det brottsförebyggande arbetet.
+
+Skolsäkerhetsutredningen har i uppdrag att lämna förslag som gör det möjligt för skola, socialtjänst och polis att utbyta information med varandra för att kunna förebygga brott. Det kan också finnas tillfällen då skolor behöver kunna dela information med varandra, exempelvis när en elev byter skola. Regeringen beslutar därför om tilläggsdirektiv till Skolsäkerhetsutredningen som innebär att utredaren också ska kartlägga och analysera vilka uppgifter som kan behöva utbytas mellan skolor i brottsförebyggande syfte och lämna förslag som möjliggör ett sådant utbyte.
+
+– Att barn och unga socialiseras och rekryteras in i organiserad brottslighet och en kriminell livsstil är oacceptabelt. För att förhindra det är det viktigt att betydelsefull information inte går förlorad när elever byter skola. Därför är det viktigt att ändra regelverket, så att det även tillåter att skolor vid behov delar information med varandra, säger skolminister Lotta Edholm.

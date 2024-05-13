@@ -1,0 +1,3 @@
+# Överlämning av betänkandet Granskning av arbetet med att försöka uppnå frigivning av Dawit Isaak och Gui Minhai
+
+Fredag den 28 oktober överlämnar Granskningskommissionen avseende två konsulära ärenden (UD 2021:01) sitt betänkande Granskning av arbetet med att försöka uppnå frigivning av Dawit Isaak och Gui Minhai (SOU 2022:55) till regeringen. Betänkandet tas emot av utrikesminister Tobias Billström. I samband med överlämningen hålls en pressträff med kommissionens ordförande Helena Jäderblom. Utrikesminister Tobias Billström kommer att finnas tillgänglig för kommentarer i anslutning till pressträffen.

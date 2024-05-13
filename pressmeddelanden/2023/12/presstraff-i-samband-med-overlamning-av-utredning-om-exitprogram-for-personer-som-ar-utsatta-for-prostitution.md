@@ -1,0 +1,3 @@
+# Pressträff i samband med överlämning av utredning om exitprogram för personer som är utsatta för prostitution
+
+Onsdag den 13 december tar jämställdhets- och biträdande arbetsmarknadsminister Paulina Brandberg emot ett betänkande om ett exitprogram för vuxna personer som är utsatta för prostitution och människohandel för sexuella ändamål och ett program för barn som är utsatta för sexuell exploatering och människohandel. Utredningen har också syftat till att bedöma hur Sverige lever upp till internationella åtaganden om identifiering, skydd, stöd och återvändande för offer för människohandel. I samband med överlämningen hålls en pressträff med Paulina Brandberg och den särskilda utredaren Anna Skarhed.
